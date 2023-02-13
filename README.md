@@ -10,3 +10,7 @@ dzisiaj jestem chory ...
 u mnie jest brzydka pogoda
 
 u mnie pada
+jutro też pewnie będzie brzydka 
+  
+
+mam goraczke ... 
